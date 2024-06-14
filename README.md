@@ -9,3 +9,11 @@ adam, if you're reading this, you a bitch 🤯😨
 btw most of these random bleed skids use the same web base by someone called "sam", who has an *interesting* past to say the least. 
 
 First and last time i'll leak code (unless you guys do something stupid, and you know who you are)
+
+FUN FACT: Adam doesn't know how to code and needs other people to be able to help, he doesn't even know how to make a post request 💀😭 I wouldn't trust him with your userdata at all
+
+https://cdn4.kars.bio/bad/adam/1.webp
+https://cdn4.kars.bio/bad/adam/2.webp
+https://cdn4.kars.bio/bad/adam/3.webp
+https://cdn4.kars.bio/bad/adam/4.webp
+https://cdn4.kars.bio/bad/adam/5.png
